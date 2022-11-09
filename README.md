@@ -1,1 +1,3 @@
-# Exercise-PBO-9-November-2022_5025211068_Muhammad-Fadhlan-Ashila-Harashta
+Exercise PBO 9 November 2022
+Muhammad Fadhlan Ashila Harashta
+5025211068
